@@ -1,1 +1,17 @@
-put the biscuits in a bowl and crush until it looks like dirt next put in the melted butter then stir get a cake pot and pour in the crums  then smooth out the crumbs in the pot get  another bowl put in the cream cheese and 120g granulated sugar stir put the sour cream in and the heavy cream,2eggs,2tb spoons of corn starch,1.5 tb spoons of vannila extract,,1/4lemon juice now pour in everything into the cake pot smooth it bake at 180C for 30mins reduce the oven to 150C bake for 30 mins more cool it down refrigerate 6 hours put in the rasp berries and 40g granulated sugar into a bowl micorwave  it for 4mins  filter it while stiring the raspberries until it looks like jam done put some jam on the cake "ready to eat"! 
+1. Put the biscuits in a bowl and crush until it looks like dirt.
+2. Put in the melted butter then stir.
+3. Get a cake pot and pour in the crums.
+4. Smooth out the crumbs in the pot.
+5. Get another bowl and put in the cream cheese.  
+6. Put in 120g granulated sugar and stir.
+7. Put in the sour cream, heavy cream, 2 eggs,2tb spoons of corn starch, 1.5 tb spoons of vannila extract and 1/4 lemon juice.
+8. Pour in everything into the cake pot and smooth it.
+9. Bake at 180C for 30 mins.
+10. Reduce the oven to 150C and bake for 30 mins more.
+11. Cool it down in the refrigerator for 6 hours. 
+12. Put in the raspberries and 40g granulated sugar into a bowl, and micorwave it for 4 mins.  
+13. Stir the raspberries and sieve it until it looks like jam.
+14. Put some jam on the cake.
+"Ready to eat"! 
+
+Author: Samuel Huang
