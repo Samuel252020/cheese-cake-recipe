@@ -1,3 +1,3 @@
 cheesecake
 
-Auther: Samuel Huang
+Author: Samuel Huang
