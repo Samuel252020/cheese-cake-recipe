@@ -11,3 +11,5 @@
 200g raspberries,
 40g granulated sugar,
 1tb spoon of water.
+
+Author: Samuel Huang
